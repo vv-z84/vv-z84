@@ -1,4 +1,5 @@
 # :)
+_"Buscai ao Senhor enquanto se pode achar, invocai-o enquanto está perto." - **Isaías 55:6**_
 
 [skubawa.com](https://skubawa.com)
 
